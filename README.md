@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Mariam Khaled!  
+# 👋 Hello, I'm Mariam Khaled!  
 
 🚀 **Computer & Systems Engineer | Data Enthusiast | Tech Explorer**  
 
